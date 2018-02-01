@@ -1,1 +1,2 @@
-chơi luôn!
+chơi luôn! 
+chơi ngay!
